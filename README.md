@@ -8,7 +8,7 @@
 
 -Google IT support Certification
 
--CCNA (Expected April 2023)
+-CCNA (Expected May 2023)
 
 <h2> 🤳 Connect with me:</h2>
 
